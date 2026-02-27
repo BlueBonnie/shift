@@ -1,0 +1,10 @@
+- NullScape: 310cm
+- filtered: 228cm
+- evilish, depth, aqua, billy(3d):: cheating expung と同じ
+- evilish (true from): 345cm
+- floid: 300cm
+- dummy: daveと同じ
+- daivy: 171cm
+- boss(mafia) garret: 187cm
+- john, billy(2d), office dude: bambiと同じ
+- limibi: 20cm
